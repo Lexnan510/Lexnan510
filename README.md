@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @Lexnan510
+- 👀 I’m interested in Videogames and Informatic
+- 🌱 I’m currently learning Lite S.O.
+- 💞️ I’m looking to collaborate on LT1OS and Retro Consoles
+- ⚡ Fun fact: Using NTLite!
